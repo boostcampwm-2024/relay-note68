@@ -60,6 +60,28 @@
 
 ### S005 곽용범
 ---
+
+- day06
+https://husky-geranium-309.notion.site/860da06b0e884c58b0c549c4963e8c80?pvs=4
+
+5️⃣ 주말에 쉬었던게 컨시션 향상에 도움이 되었습니다.
+
+- day07 
+
+https://husky-geranium-309.notion.site/Test-3b0cd2034ac148258e2c375a89df8508?pvs=4
+
+5️⃣ 어제 학습정리를 만족하게 끝내서 아침부터 피어세션에 공유할 생각에 좋았습니다.
+
+- day08
+
+https://husky-geranium-309.notion.site/d942ad27aa3b40a3ae0224c292799f9f?pvs=4
+
+3️⃣  미션이  생각보다 막혀 많이 자지 못했습니다.
+
+- day09
+
+1️⃣ 미션 난이도가 어려운데 2개까지?? 잠을 자지 말라는거죠 ㅠㅠ? 
+
 ### J158 오예현
 ---
 ### J228 정준희
